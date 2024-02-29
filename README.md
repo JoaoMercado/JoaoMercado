@@ -10,4 +10,4 @@ Meu nome é Joao Victor
 joaovictor18042008@gmail.com
 
 
-![](https://media.tenor.com/fNoY1Y1mhpAAAAAd/kny-hello-chat.gif)
+![](https://tenor.com/pt-BR/view/%D1%81%D0%BE%D0%B1%D0%B0%D0%BA%D0%B0-%D1%81-%D0%B1%D0%B0%D0%B1%D0%BE%D1%87%D0%BA%D0%BE%D0%B9-gif-15408992349200348383)
